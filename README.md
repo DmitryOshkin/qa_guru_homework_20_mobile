@@ -1,0 +1,1 @@
+# qa_guru_homework_20_mobile
